@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @samix651
-- 👀 I’m interested in do game
+- 👀 I’m interested in do games
 - 🌱 I’m currently learning all lenguages
 - 💞️ I’m looking to collaborate on hinobi
 - 📫 How to reach me baron7072@gmail.com
